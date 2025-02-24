@@ -1,1 +1,1 @@
-Kádár Kristóf - B csoport
+Kádár Kristóf - B csoport - Szoft.fej. A2
